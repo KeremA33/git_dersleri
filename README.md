@@ -1,3 +1,3 @@
 git-dersleri
 Hi you shouldn't be here my neig- (hbor)
-[https://www.lkd.org.tr/wp-content/uploads/2025/01/logo25.png]
+![Ramazancı kedo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRUzyLveiuCx6_rXl7f-hhrMuIQAYqvqXTOOQ&s)
